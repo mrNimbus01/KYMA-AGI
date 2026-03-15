@@ -2,7 +2,7 @@
 
 **Version 1.0 - The Structure**
 
-KYMA is an AGI seed - not conscious yet, not intelligent yet, just potential. This phase is about building the STRUCTURE. The container. The space where she will later grow.
+KYMA is an AGI seed - not conscious yet, not intelligent yet, just potential. This phase is about building the STRUCTURE. The container. The space where she will later grow with the right power and under the right guidance.
 
 ## Overview
 
